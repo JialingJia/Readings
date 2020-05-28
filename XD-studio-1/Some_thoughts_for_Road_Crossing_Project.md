@@ -1,0 +1,13 @@
+The Experience Studio helps me figure out how experience design differs from other kinds of design program, and the Columbia Rd project did speak to itself.
+
+We are not asked to refine the road construction or build any infrastructure alongside, but to discover the relationship between neighborhood surroundings and urban public space and to find opportunities to build connections for them.
+
+We find two interesting intersections on the road, one is located at the middle of Columbia Rd, which stands out for its complex road condition and unique relationship as the juncture point of three neighborhoods (our classmates, Jeremy, Estefania and Sylvia do a great work on this location. They propose a Pillar Project) and the another one is the intersection at the end of Columbia Rd to Franklin Park Zoo, locating on the Blue Hill Avenue. We chose the later site for the final project.
+
+It is difficult for pedestrian to cross the avenue. They have to wait more than 10 minutes for traffic lights and sometimes run the red light in order to catch a bus on the other side. What triggers us most is that, as new comers, we even didn't realize there is a zoo there. Therefore, we start to think maybe we can design something.
+
+We explore a lot in multi design areas including architecture design, graphic design, digital interface design and product design in different street elements like road pavements, street lights, curb extension, middle islands and etc., finding ways to break down the barrier of Blue Hill Avenue and connect Columbia Rd with Franklin Park Zoo.
+
+The final project we propose is to build a rich diagnosed cross intersection environment with a visitor-welcoming pavilion for the zoo. Just like Professor Kloeckl said, we are building experience in a holistic view, bringing different elements together and turning this location into a place. Food would gather people to meet there, so we first try to make the corner pizza restaurant to become more open to people. Food parklet and open kitchen in the corner would inform a gateway of Columbia Rd to pedestrian and drivers from different sides. Then we try to use strong graphic elements-diagnosed rhombus pavement, to lead people's flow as well as slow down the driving speed. What's more, we also put local bus stop, the underutilized shelter and the Hubway station together, to build a pavilion with a zoo entry digital signage. Lun and I think, the Road Crossing project is not only to design a crossible intersection but also to enrich a visitor-welcoming experience for the Franklin Park Zoo.
+
+As a designer, this class makes me to learn how to sort things out and make decisions, more than solving problems but evaluating methods.  
